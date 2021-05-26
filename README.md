@@ -1,2 +1,2 @@
-# izimarkpublishing.github.io
-Website
+# izi-mark-publishing
+Web Site
