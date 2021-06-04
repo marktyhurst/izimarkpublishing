@@ -7,7 +7,7 @@ email: abc@gmail.com
 tags: female writer
 
 ---
-Shrubaboti Bose is an Indian writer, currently freelancing after completing her Masters in English Literature from Jadavpur University, Kolkata
+Shrubaboti Bose is an Indian writer, currently freelancing after completing her Masters in English Literature from Jadavpur University, Kolkata.
 
 She loves creative writing and has her personal blog where she shares her poetry, short stories or memoirs. Her works have been previously published in International magazines such as Ruminate Magazine (Issue 56), Radiate Literary Journal, etc.
 
