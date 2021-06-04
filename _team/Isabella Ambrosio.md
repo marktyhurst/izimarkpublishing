@@ -15,7 +15,7 @@ I take an interest in autobiographical fiction and New Adult topics. I believe i
 
 Through my writing, I hope to create a dialogue about these issues, as well as to let people who are suffering through those traumatic issues that they are not alone. The most important thing someone can discover through their life is that they are truly not alone. There are so many people out there that struggle with the same issues, whether or not they’re vocal about it. I hope my writing can be both a safe place, a discussion topic, and teach hope and perseverance no matter what.
 
-Thank you to IziMarkPublishing for believing in my vision and giving me the platform to share my work”.
+Thank you to IziMarkPublishing for believing in my vision and giving me the platform to share my work.
 
 
 

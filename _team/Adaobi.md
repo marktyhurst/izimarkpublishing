@@ -19,7 +19,7 @@ I think I began a bit too early to pursue a career in writing. Maybe because I c
 
 In 2019, I created my own blog. Due to my lack of experience, I was never able to manage it well, and it was deleted. I created two more after, and deletion followed suit. In 2021, I finally came up with one that has been doing well anyway.
 
-Somehow, I think that I have been good enough, even up until I applied to a publishing company called IziMarkPublishing that was willing to help lay a proper foundation for my writing career”.
+Somehow, I think that I have been good enough, even up until I applied to a publishing company called IziMarkPublishing that was willing to help lay a proper foundation for my writing career.
 
 
 

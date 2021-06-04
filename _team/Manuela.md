@@ -20,7 +20,7 @@ I can’t leave without adding a few fun facts about myself: I love (can-not-liv
 
 I look forward to spreading my ideas with the supportive hand of iziMarkPublishing.
 
-Please also find my kids book reviews blog on Instagram: @storytimebymagu.
+Please also find my kids book reviews blog on Instagram: [@storytimebymagu](https://www.instagram.com/storytimebymagu/).
 
 
 

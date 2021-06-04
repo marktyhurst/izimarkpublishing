@@ -13,7 +13,7 @@ Alexa has been published by the Seventh-Day Encyclopedia and the American Librar
 
 She has been recognized for her academic achievements and will continue her education at Loma Linda University in Loma Linda, California where she will obtain her Psy.D. in Clinical Psychology.
 
-Her hobbies include writing (of course), strength training, reading, and playing volleyball and she has recently started a lifestyle blog which can be accessed at [https://abirch234.wixsite.com/livinglifeasabirch](https://abirch234.wixsite.com/livinglifeasabirch)
+Her hobbies include writing (of course), strength training, reading, and playing volleyball and she has recently started a lifestyle blog which can be accessed at [https://abirch234.wixsite.com/livinglifeasabirch](https://abirch234.wixsite.com/livinglifeasabirch).
 
 
 
