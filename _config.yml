@@ -26,7 +26,7 @@ baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 instagram_username: IziMarkPublishing
 linkedin_username: izimarkpublishingco-867282210
-twitter_username: jekyllrb
+twitter_username: PublishwithMark
 github_username:  jekyll
 collections:
   team:
